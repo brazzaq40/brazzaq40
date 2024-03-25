@@ -2,7 +2,7 @@
 - 👀 I’m interested in devops
 - 🌱 I’m currently learning about devops
 - 💞️ I’m looking to collaborate on devops
-- 📫 How to reach me razzaqb40@gmail.com
+- 📫 Reach me razzaqb40@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
